@@ -1,1 +1,1 @@
-show me
+show me the money
